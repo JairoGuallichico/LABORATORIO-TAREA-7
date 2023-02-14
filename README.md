@@ -48,6 +48,7 @@ Lograr obtener conocimientos de los diferentes inductores y transformadores que 
 
 5.	VIDEO
 
+https://www.youtube.com/watch?v=e3miAvMeSKE
 
 6.	CONCLUSIONES 
 
